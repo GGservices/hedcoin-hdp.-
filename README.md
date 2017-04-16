@@ -1,0 +1,2 @@
+# hedcoin-hdp.-
+E-currency
